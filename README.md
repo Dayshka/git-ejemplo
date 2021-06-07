@@ -1,2 +1,2 @@
-# este es u n ejemplo para mi chanchito
+# este es un ejemplo para mi chanchito
 te amo infinito
